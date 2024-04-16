@@ -1,4 +1,4 @@
 # Salud-Emocional
-Especialista en Salud Emocional+
+Especialista en Bienestar y Salud Emocional
 Envejecimiento y Calidad de Vida. 
 Demencias, Alzheimer, Psicosis.
